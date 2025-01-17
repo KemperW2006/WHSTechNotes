@@ -25,3 +25,12 @@ it helps you understand complex stuff which also helps with other jobs
 
 How does coding enhance creativity or collaboration?
 it makes your mind think and when you think you get more ideas which are most likley creative ideas.
+
+# January 8, 2025
+Looking Back:
+i loved that i could work on python the whole semester... it was fun to make my own programs
+Looking Ahead:
+More python
+
+# January 16, 2025
+AI is taking over most things and computer jobs being one of them... its sad but its true... AI like chat gpt can create full python code in under a minute with only a few errors. its cool but also scary what AI will become.
