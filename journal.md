@@ -34,3 +34,8 @@ More python
 
 # January 16, 2025
 AI is taking over most things and computer jobs being one of them... its sad but its true... AI like chat gpt can create full python code in under a minute with only a few errors. its cool but also scary what AI will become.
+
+# January 22, 2025
+tiktok was banned due to some privacy reasons and relations to china's past of stealing data from users. it lasted 12-13 hours before trump stated it wasn't a threat to society meaning it could stay in the U.S. a lot led up to the case and the ban was official and the 19th of january was the officail date. the app went dark as well as multiple other apps that the company Bytedance owned... including the beloved capcut. when americans opened the app oin the 20th, we were welcomed with a welcome back message. it was a sign of releif for a lot of us.
+
+some people are stating Trump did this because it help him win the elction's youth count as him having an acc on tiktok with promotions of the campaighn as well as his follower promoting his campaighn through edits, ads, videos, and even pictures. Trump was the one to start this ban back in 2020 for the same resaon it got banned last week... for suspision of china stealing users data. the U.S. Supremem court said there was no reason of the ban that it was china. they stated the ban was put in place because of the susupion of data stealing... not beacsue its a chinese company or not bc the U.S. makes no money off the app.
